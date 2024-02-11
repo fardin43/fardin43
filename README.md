@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer Engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me MObile NO:9130356440 
-- 😄 Pronouns: 
+- 😄 Pronouns: HE
 - ⚡ Fun fact: ...
 
 <!---
